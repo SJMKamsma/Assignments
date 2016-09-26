@@ -20,21 +20,21 @@ Driving License: AM B
 ##Education
 ------------------------------------
 
-_Master Economics, track Behavioral Economics_					Sep ’16 – Today
+_Master Economics, track Behavioral Economics_: Sep ’16 – Today
 
 Tilburg University
 
-_Honoursprogram Descartes college_ 						Sep ’14 – July ‘16
+_Honoursprogram Descartes college_: Sep ’14 – July ‘16
 
 Utrecht University
 
-_Bachelor Economics and Business Economics_	Cum laude			Sep ’13 – July ‘16
+_Bachelor Economics and Business Economics_	Cum laude: Sep ’13 – July ‘16
 
 Utrecht University School of Economics
 
 Minor: Social Sciences
 
-_Pre- University Education_ 							Sep ’08 – Sep ‘13
+_Pre- University Education_: Sep ’08 – Sep ‘13
 
 CSG Bogerman, Sneek – Profile: Economics and Society 
 
@@ -42,33 +42,33 @@ CSG Bogerman, Sneek – Profile: Economics and Society
 ## Work experience
 -------------------------------------
 
-_Lyceo_										Feb ’15 – Today
+_Lyceo_: Feb ’15 – Today
 
 Exam training: Explaining all the exam material to exam students in two or three days.
 
 Spring-/Summer school: Helping students to understand a difficult subject in one week. 
 
-_Juffrouw Julia, Amersfoort (12 hours)_						Feb ’15 – July ‘16
+_Juffrouw Julia, Amersfoort (12 hours)_: Feb ’15 – July ‘16
 
 Homework assistance and tutoring
 
 Helping children with planning their homework and explaining the material when needed. Next to this I did some extra work like coordinating the day and executing a research about the progress of the students.
 
-_Search & Results, Call Center_							Oct  ’14 – Dec ‘14
+_Search & Results, Call Center_: Oct  ’14 – Dec ‘14
 
 Calling to companies for companies 
 
-_University Utrecht_								Nov ’13 – Nov’ 15
+_University Utrecht_: Nov ’13 – Nov’ 15
 
 Providing study information to potential students
 
-_Leather Pasveer, Sneek_								May ’13 – Sep ‘15
+_Leather Pasveer, Sneek_: May ’13 – Sep ‘15
 
 Salesadvisor
 
 Helping customers by choosing the product by explaining the quality features of the products
 
-_Rentex Floron, Bolsward_								June ’12 – Aug ‘12
+_Rentex Floron, Bolsward_: June ’12 – Aug ‘12
 
 Clothing Sorter
 
@@ -76,27 +76,27 @@ Clothing Sorter
 ## Experience
 ------------------------------------
 
-_SECU (Chairman), ECU’92_								Sep ’15 – Today
+_SECU (Chairman), ECU’92_: Sep ’15 – Today
 
 SECU is a foundation that is responsible for the book sale for all the students Economics and Business Economics at Utrecht University. Next to this it provides summaries for the small courses
 
 KVK-number:	41187132
 
-_Language lessons Refugees_ 							Dec ’15– April ‘16
+_Language lessons Refugees_: Dec ’15– April ‘16
 
 Teaching refugees Dutch in groups of 1 to 5 refugees.
 
-_Economic Career day (Coordinator Acquisition), ECU’92_				Jan ’15 – Dec ‘15
+_Economic Career day (Coordinator Acquisition), ECU’92_: Jan ’15 – Dec ‘15
 
 Together with 5 other students we are responsible for organizing the career day. The career day gives around 150 students the possibility meet several companies.  The responsibility for the coordinator acquisition is to recruit companies for the day.
 
-_SECU (Secretary), ECU’92_								Sep ’14 – Sep ‘15
+_SECU (Secretary), ECU’92_: Sep ’14 – Sep ‘15
 
 SECU is a foundation that is responsible for the book sale for all the students Economics and Business Economics at Utrecht University. Next to this it provides summaries for the small courses
 
 KVK-number:	41187132
 
-_Yearbook Committee (Coordinator Lay-out), ECU’92_					Sep ’13 – Sep ‘14
+_Yearbook Committee (Coordinator Lay-out), ECU’92_: Sep ’13 – Sep ‘14
 
 Together with 5 students we created the yearbook for the first year members of study association ECU’92.
 
@@ -105,7 +105,7 @@ Together with 5 students we created the yearbook for the first year members of s
 -----------------------------------------------
 
 
-_Schuldhulpmaatje_								Jan ’15 – Today
+_Schuldhulpmaatje_: Jan ’15 – Today
 
 The purpose of this voluntary work is to help people to get in control of their financial situation and eventually gain individual financial independency. 
 
